@@ -1,2 +1,0 @@
-# tamaless
-De rajas 
